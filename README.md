@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nagasaikarthik
+- 👀 I’m interested in programming and learning
+- 🌱 I’m currently learning DSA with Java
+- 📫 How to reach me .you can reach me on LinkedIn
+- 😄 Pronouns: Nagasai
+- ⚡ Fun fact: Even lot of time is unsufficient to me
